@@ -38,7 +38,7 @@ This renewed industry focus on email as the premiere marketing focus, confirms w
 
 ### Just warming up
 
-I really enjoy knowing that you are hear reading this. Once again I find myself working on platforms with passion. I have found myself losing myself in my code, plans and drive to share as much as possible. 
+I really enjoy knowing that you are here reading this. Once again I find myself working on platforms with passion. I have found myself losing myself in my code, plans and drive to share as much as possible. 
 
 I have multiple stories to tell, and tell them I will. It's been quite a ride these last several years and those who pay attention will be rewarded with hair raising stories and insightful commentary into technology that levels the playing field for the little guys. 
 
